@@ -1,16 +1,13 @@
-## Hi there 👋
+## ❣️ The real Batgirl007 ❣️
 
-<!--
-**BatGir1/BatGir1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Meu user é Bat_Girl007
+- Sou aluna de ensino medio
+- Sou ARMY 💜💜💜💜💜💜💜
+- Meu Utt é o JK
+- Estou sendo compelida a fazer isso para compartilhar meus projetos da plataforma Alura
 
-Here are some ideas to get you started:
+## Meu email de contato é:
+00001105251755sp@al.educacao.sp.gov.br
+- *Só me contatar em caso extremo*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ![](https://media.tenor.com/5RcZ5dgRPcgAAAAM/jungkook.gif)
