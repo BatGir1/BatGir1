@@ -3,7 +3,8 @@
 - Meu user é Bat_Girl007
 - Sou aluna de ensino medio
 - Sou ARMY 💜💜💜💜💜💜💜
-- Meu Utt é o JK
+- Meu Utt é o JK 🐇
+- Eu também sou Stay (Bias= Felix🐥)
 - Estou sendo compelida a fazer isso para compartilhar meus projetos da plataforma Alura
 
 ## Meu email de contato é:
